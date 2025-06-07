@@ -2,7 +2,7 @@
 - 👀 I’m interested in Back End Developement, Health Care Data Analytics and Full Stack Software Development
 - 🌱 I’m currently learning Back End Developement, Health Care Data Analytics and Full Stack Software Development in NuCamp Bootcamp
 - 💞️ I’m looking to collaborate on Back End Developement, Health Care Data Analytics and Full Stack Software Development
-- 📫 How to reach me please email me @ lindleyrbriana@gmail.com
+- 📫 How to reach me please email me @ lindleybriana@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am a dual citizen 🇩🇰🇺🇸
 
